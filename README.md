@@ -1,1 +1,1 @@
-# crypto-for-life
+you are so gullible lmao
